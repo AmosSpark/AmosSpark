@@ -1,6 +1,6 @@
 # Hi👋, I'm Ayobami Oguntolu
 
-👐 I'm open to `Patnering on side Projects`, `Open source contributions`, <br> `Technical Writing`,`Internships and full time roles` and `Volunteering`.
+👐 I'm open to `Patnering on side Projects`, `Open source contributions`, <br> `Technical writing`,`Internships, Full time roles` and `Volunteering`.
 
 ## About Me 🚀
 
